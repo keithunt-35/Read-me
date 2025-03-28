@@ -12,3 +12,7 @@ As a lifelong learner, I strive to stay abreast of emerging trends in the tech i
 
 I am excited about the prospect of contributing to and growing within the software engineering community. My goal is to leverage my academic foundation, combined with my extracurricular experiences, to become a skilled and ethical software engineer capable of creating impactful technological solutions.
 
+
+https://youtu.be/YvSigz9voNU?si=MYSHgSxk7bfAN8bh
+
+ i hac and ost but won
